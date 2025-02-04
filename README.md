@@ -1,4 +1,4 @@
--👋 Hi, I’m @Camzssj
+- 👋 Hi, I’m @Camzssj
 - 👀 I’m interested in video games, sports, the gym, and calisthenics.
 - 🌱 I’m currently learning about cybersecurity.
 - 💞️ I’d love to collaborate on cybersecurity or gaming projects.
